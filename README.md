@@ -1,6 +1,6 @@
-# Wholesome Backyard Wildlife Resources
+# Backyard Wildlife Resources (Listicle Class Assignment)
 
-A collection of **fun and educational links** for anyone curious about the little critters that roam our backyards, from **groundhogs** to squirrels and beyond!  
+Below you will find a stupendous collection of **fun and educational links** for anyone curious about the wildlife that roam our backyards, from **groundhogs** to squirrels and beyond!  
 
 ---
 
